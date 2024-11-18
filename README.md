@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Adityarawat2007 (aka. Aditya Rawat)
+- 👀 I’m interested in Automation via Python and JS 
+- 🌱 I’m currently learning Python automation  
+- 💞️ I’m not looking to collaborate on anything
+- 📫 You can reach me out via my instagram id: aditya._.rawat._
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like almost everything that even slightly interesting, like cars, planes, machines, codes, computers and what not
